@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c,c++,java,python
 - 💞️ I’m looking to collaborate on to new people
 - 📫 How to reach me by my instagram
-- @_xdrakennx_
+- @  _xdrakennx_
 - or godarisathwik11@gmail.com
 - 😄 
 
